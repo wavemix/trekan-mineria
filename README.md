@@ -1,0 +1,1 @@
+# trekan-mineria
